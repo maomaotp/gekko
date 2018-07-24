@@ -24,4 +24,4 @@ Gekko has [a forum](https://forum.gekko.wizb.it/) that is the place for discussi
 
 ## Final
 
-If Gekko helped you in any way, you can always leave me a tip at (BTC) 13r1jyivitShUiv9FJvjLH7Nh1ZZptumwW
+If Gekko helped you in any way, you can always leave me a tip at (BTC) 13r1jyivitShUiv9FJvjLH7Nh1ZZptumwW...
